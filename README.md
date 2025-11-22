@@ -11,7 +11,8 @@ I am an individual looking to cultivate a new hobby and broaden my horizons. I'v
 - 🌟 **Focus:** Exploring different genres and finding joy in storytelling
 
 ## 📂 Reviews
-Check out my reviews organized by genre in the folders above!
+Check out my reviews organized by genre in the files above!
+PS. Beware of potential spoilers!
 
 ---
 *Thanks for visiting! Feel free to recommend movies.* 🍿
